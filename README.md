@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @lpsnelgrove
+- 👀 I’m interested in getting a job
